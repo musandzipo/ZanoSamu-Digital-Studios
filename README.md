@@ -7,3 +7,7 @@ The idea of ZanoSamu came to life after an informed research that small scale bu
 
 
 ![image](https://user-images.githubusercontent.com/116715036/227148713-4cd58436-3bb4-4669-ad04-35cb55ad3f41.png)
+
+
+
+![image](https://user-images.githubusercontent.com/116715036/227972600-79916710-f43a-4e4c-b0f7-48494a3dbaef.png)
